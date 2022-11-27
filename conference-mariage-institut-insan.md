@@ -130,10 +130,24 @@ Parfois, la différence de vision au sein même de la religion peut être source
 
 ## La prière de consultation et la concertation
 
+- La prière de consultation doit s'établir lorsque l'on a un choix à faire et que l'on ne peut pas prédir où se trouve le bien. Le prophète SWS la pratiquait dans de nombreuses situations.
+- Elle est constituée de deux unités de prière et d'une invocation à la fin
+
 ## La cérémonie du mariage
+
+Il est recommandé de célébrer par un moment de joie et de fête, selon ses moyens, mais ne doit pas être source de conflit. Eviter le gaspillage est fondamental.
+C'est votre mariage, et personne ne doit vous imposer la manière dont il se déroulera.
 
 ## La première nuit du mariage
 
+La première nuit est importante et est souvent négligée et mal comprise avec beaucoup de pression. La consommation du mariage ne doit pas être faite la première nuit nécessairement.
+
+- Rappel de l'importance de la prière et l'invocation avant l'intimité
+- L'amour, la douceur, le respect des souhaits et des impressions de l'autre sont fondamentaux.
+- Les animaux nous montrent l'art de la séduction, la recherche de l'appréciation de l'autre
+
 ## Les sept premiers jours du mariage
+
+Les 7 premiers jours sont là pour construire la relation et ne doivent pas être négligés.
 
 ## Protéger le bonheur de sa vie conjugale
