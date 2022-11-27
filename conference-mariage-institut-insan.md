@@ -76,11 +76,27 @@ Exemple du verset sur la nourriture licite (verset sourate La table "Et ils t'in
 Toutes les transactions doivent être cadrées, sinon cela ouvre la porte au diable, à l'oubli, à l'égo et toutes les vulnérabilités humaines. Le mariage n'en fait pas exception. Comme tout engagement, il est lié à des droits, des devoirs et des responsabilités qui sont organisés autour d'un contrat. Il s'agit de protéger les époux.
 
 - Le mariage religieux n'a aucune valeur juridique, pour cela le mariage civil doit être fait.
+- Les trois piliers du contrat :
+	- Les deux partis ne doivent pas être empêchées par un interdit (définitif ou temporaire)
+	- L'accord des deux partis
+	- Le tuteur, les témoins et la formulation
 - Le mariage temportaire (dont le contrat contient une clause temporelle) est illicite et ne diffère pas de la fornication
 
 ## Les erreurs à ne pas faire avant le mariage
 
+- Prendre un bon départ : avoir une bonne intention (certes, les actions ne valent que par les intentions), ne pas mentir
+- Les caractéristiques de l'hypocrisie sont les suivantes : 
+	- Le mensonge
+	- Faillir à ses engagements
+	- Manquer à sa parole
+	- Proférer des paroles vulgaires à chaque dispute
+- Il faut rechercher à plair à Dieu, à le satisfaire. Ne pas accorder d'importance au regard des gens.
+- La véracité est importante : histoire de la jeune fille dont la mère souhaitait diluer du lait dans de l'eau pour en vendre plus. La jeune fille signale à sa mère que si Omar ne les verrais pas tricher, son seigneur le verrait. En ayant entendu cela, Omar a conseillé aux siens cette jeune fille comme épouse car si elle est véridique, elle possède de nombreuses autres qualités.
+- Ne pas juger hâtivement : histoire de l'enfant dans le train qui ennuyait tout le monde à être emerveillé par tout ce qu'il voit et à le crier très fort. Alors que tout le monde était ennuyé et avaient déjà jugé cet enfant et son éducation, son père s'excuse en confiant que cet enfant sortait d'une opération, et qu'il pouvait enfin voir pour la première fois. Si notre cerveau essais très rapidement d'identifier dans des cases, et de juger les autres, il faut garder à l'esprit qu'il y a beaucoup de choses que l'on ne sait pas et se méfier des préjugés.
+
 ## Les critères essentiels pour le choix de son (sa) conjoint(e)
+
+Le prophète annonce que si nous sommes satisfait de la religiosité et de la noblesse de caractère d'une personne, alors il faut l'épouser. 
 
 ## Les conjoints à éviter
 
