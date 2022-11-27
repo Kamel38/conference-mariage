@@ -97,10 +97,21 @@ Toutes les transactions doivent être cadrées, sinon cela ouvre la porte au dia
 ## Les critères essentiels pour le choix de son (sa) conjoint(e)
 
 Le prophète annonce que si nous sommes satisfait de la religiosité et de la noblesse de caractère d'une personne, alors il faut l'épouser. 
+- La religiosité comme base de ses valeurs garanti le respect des droits
+- La noblesse de caractère permet de bien vivre ensemble au quotidien, la compatibilité, lorsque le conjoint parle il est valorisant, respectueux etc...
+
+Le prophète indique aussi les 4 raisons suivantes : 
+- Ses biens
+- Sa famille / ses origines sociales
+- Sa beauté
+- Sa religiosité
+et conseille de choisir la religiosité car c'est un choix que l'on ne regrettera jamais.
 
 ## Les conjoints à éviter
 
 ## Les différents profils de personnalité
+
+
 
 ## La prière de consultation et la concertation
 
