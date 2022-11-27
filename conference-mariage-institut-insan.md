@@ -75,12 +75,12 @@ Exemple du verset sur la nourriture licite (verset sourate La table "Et ils t'in
 
 Toutes les transactions doivent être cadrées, sinon cela ouvre la porte au diable, à l'oubli, à l'égo et toutes les vulnérabilités humaines. Le mariage n'en fait pas exception. Comme tout engagement, il est lié à des droits, des devoirs et des responsabilités qui sont organisés autour d'un contrat. Il s'agit de protéger les époux.
 
-Les piliers du contrat de mariage : 
-- 
+- Le mariage religieux n'a aucune valeur juridique, pour cela le mariage civil doit être fait.
+- Le mariage temportaire (dont le contrat contient une clause temporelle) est illicite et ne diffère pas de la fornication
 
 ## Les erreurs à ne pas faire avant le mariage
 
-## Les critères essentiels pour le choix de son (sa) conjoint (e)
+## Les critères essentiels pour le choix de son (sa) conjoint(e)
 
 ## Les conjoints à éviter
 
