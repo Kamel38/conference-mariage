@@ -51,9 +51,6 @@ Exemple du verset sur la nourriture licite (verset sourate La table "Et ils t'in
 	- Déconseillé : grand risque d'injustice
 	- Interdit : certitude sur le risque d'injustice et d'incapacité 
 
-## La jurisprudence du mariage
-
-
 ## Les conditions du mariage
 
 - Les deux parties sont d'accord et consentantes
@@ -64,7 +61,19 @@ Exemple du verset sur la nourriture licite (verset sourate La table "Et ils t'in
 - Compatibilité, équivalence, concordence : Une compatibilité qui dépend de facteurs incluant la religion, le statut social, la moralité, la piété ...
 - La formulation  
 
+## La jurisprudence du mariage
+
+- Il n'est pas illicite de porter une alliance. Seul l'or est interdit pour les hommes.
+- A travers l'histoire, les sociétés et les cultures, les femmes sont demandées en mariage. Cependant, il n'est pas interdit à une femme de demander un homme en mariage. Par exemple, ça a été le cas pour l'épouse Khadija du Prophète SWS. 
+- Le mariage forcé ne fait pas parti de la religion, ainsi que ses dérivés comme le mariage arrangé usant de culpabilité et autres procédés de manipulation
+- La clarté et la transparence sont de mise ! Souvent la periode avant le mariage est parsemée de messonges et d'arrangements de la vérité. On ne commence pas un mariage sur la base du mensonge. Pour autant, il ne faut pas divulger les erreurs enterrées et repentie du passé. L'exemple est donné d'une femme qui a eu une relation hors mariage, qui s'est repentie et pour laquelle Omar a ordonné de préserver son mariage de son passé.
+- Pas de fausses promesse : il ne faut dire que des choses que l'on peut assumer. De nombreux conflits ont leur origine dans des promesses faites avant le mariage, et ont des conséquences sur la vie conjugale.
+- Le regard : les époux doivent bien évidemment se voir avant de s'engager dans quoi que ce soit. Si la beauté ne doit pas être le seul critère dans le choix de son conjoint, il faut tout de même être à l'aise avec son apparence, et qu'il ou elle nous plaise. L'observation ne se limite pas à l'apparence, mais s'applique aussi à sa manière de penser, ses fréquentations et son comportement.
+
+
 ## Le contrat de mariage
+
+Toutes les transactions doivent être cadrées, sinon cela ouvre la porte au diable, à l'oubli, à l'égo et toutes les vulnérabilités humaines. Le mariage n'en fait pas exception. Comme tout engagement, il est lié à des droits, des devoirs et des responsabilités qui sont organisés autour d'un contrat.
 
 ## Les erreurs à ne pas faire avant le mariage
 
