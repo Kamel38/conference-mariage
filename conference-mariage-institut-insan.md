@@ -112,7 +112,7 @@ et conseille de choisir la religiosité car c'est un choix que l'on ne regretter
 Il existe une différence de profils et de personnalité. Il est important de s'intéresser aux affinités et à la compatibilité des profils à l'image des compatibilité des greffes ou des transfusion sanguine - au risque de voir des rejets.
 
 > [!cite]
-> Les âmes sont des soldats regroupésn celles d'entre elles qui se connaissent vivent en harmonie, celles qui s'ignorent deumeurent en discordance
+> Les âmes sont des soldats regroupés, celles d'entre elles qui se connaissent vivent en harmonie, celles qui s'ignorent deumeurent en discordance
 
 \- Prophete SWS
 
@@ -120,9 +120,12 @@ La compatibilité peut s'établir sur le plan social, de l'âge (psychologique, 
 
 Parfois, la différence de vision au sein même de la religion peut être source de conflits intense. Pas tout le monde n'a la maturité de passer outre et respecter les divergences.
 
-## Les conjoints à éviter
+## Les conjoint(e)s à éviter
 
-Les personnes présentant des addictions aux jeux, à l'alcool, les conjoints violents
+- Les personnes présentant des addictions aux jeux, à l'alcool, 
+- Les conjoints violents. Le prophète SWS n'a jamais frappé personne.
+- Les personnes matérialistes à l'extrême et manquent de gratitude et de reconnaissance, qui ne perçoivent les choses que par la présence de biens matériels et se plaignent souvent de manquer de tout.
+- Les personnes présentant des conceptions de la religion trop littérales et les religieux par l'apparence
 
 
 ## La prière de consultation et la concertation
