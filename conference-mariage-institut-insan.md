@@ -73,7 +73,10 @@ Exemple du verset sur la nourriture licite (verset sourate La table "Et ils t'in
 
 ## Le contrat de mariage
 
-Toutes les transactions doivent être cadrées, sinon cela ouvre la porte au diable, à l'oubli, à l'égo et toutes les vulnérabilités humaines. Le mariage n'en fait pas exception. Comme tout engagement, il est lié à des droits, des devoirs et des responsabilités qui sont organisés autour d'un contrat.
+Toutes les transactions doivent être cadrées, sinon cela ouvre la porte au diable, à l'oubli, à l'égo et toutes les vulnérabilités humaines. Le mariage n'en fait pas exception. Comme tout engagement, il est lié à des droits, des devoirs et des responsabilités qui sont organisés autour d'un contrat. Il s'agit de protéger les époux.
+
+Les piliers du contrat de mariage : 
+- 
 
 ## Les erreurs à ne pas faire avant le mariage
 
